@@ -1,4 +1,4 @@
-## Meu sonho é deixar de ser programador e ir trabalhar em uma fazenda
+## Maybe I'll be a farmer in my next life
 
 ![](https://f.feridinha.com/ON6hV.png)
 
